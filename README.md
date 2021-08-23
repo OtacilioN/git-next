@@ -8,4 +8,4 @@ Estes são alguns dos meus hobbies:
 
 - Cozinhar
 - Fazer carinho na Pamonha (Minha doguinha)
-- Jogar jogos de RPG
+- Jogar jogos de RPG no ps4
